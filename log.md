@@ -1,0 +1,1 @@
+I creat this log file to record the process of coding.And urging my self to finish this project.Although I'm Chinese,but I will use English to write this file to practice the ability of English writing.I really want to pass CET-6.
